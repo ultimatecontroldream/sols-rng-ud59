@@ -1,4 +1,4 @@
-#  
+#  Experience sol's rng like never before with sol's rng Scripts advanced, the #1 Script. Includes auto-sell and one-hit kill for unbeatable performance.
 
 
 
